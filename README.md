@@ -1,7 +1,7 @@
 # PR-9-Escalsator
-![2](https://github.com/user-attachments/assets/1214dbc8-28e0-4c82-99c4-de1c48b37a52)
-![2](https://github.com/user-attachments/assets/d7ca16cd-6131-4233-90e4-a38c8e9a1cbd)
+![1](https://github.com/user-attachments/assets/25f79f94-e52c-4694-84e8-6c4e1722d922)
 
+![2](https://github.com/user-attachments/assets/89556714-de63-4a85-81e7-6da76cf51fb8)
 
 
 
